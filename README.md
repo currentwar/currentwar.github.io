@@ -1,2 +1,0 @@
-# currentwar.github.io
-Gallery
